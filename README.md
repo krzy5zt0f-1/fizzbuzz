@@ -1,1 +1,1 @@
-## Firs Pairing Session ##
+## First Pairing Session ##
